@@ -41,4 +41,6 @@ If you are keen to explore all that this darknet marketplace offers, make sure t
 
 
 
-Update:  14 September 2025 I'm happy to report that the link is now accessible.
+
+
+Update:  Thursday 18 September 2025 link is live and working
